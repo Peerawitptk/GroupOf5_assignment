@@ -1,7 +1,8 @@
 นาย พีรวิทย์ พัฒนากุล 633021295-7 Username:peerawitptk
 
 ![1](https://user-images.githubusercontent.com/120616715/209792250-6aec6251-f59f-4a26-a070-6cb35d0d082f.jpg)
-บท Github
+
+บท 1 Github
 The policeman on the beat moved up the avenue impressively. The impressiveness was
 habitual and not for show, for spectators were few. The time was barely 10 o'clock at night, but
 chilly gusts of wind with a taste of rain in them had well nigh depeopled the streets.
@@ -28,6 +29,8 @@ diamond, oddly set
 
 ![254345282_4803464089713111_5776864085764858409_n](https://user-images.githubusercontent.com/121214476/209794273-96defabf-44ed-466c-955d-25391d83474a.jpg)
 -------------------------------------------------------------------------------------------------------------------------------
+
+บท 2 Github
 "Twenty years ago tonight," said the man, "I dined here at 'Big Joe' Brady's with Jimmy Wells,
 my best chum, and the finest chap in the world. He and I were raised here in New York, just like
 two brothers, together. I was eighteen and Jimmy was twenty. The next morning I was to start
