@@ -53,3 +53,25 @@ The waiting man pulled out a handsome watch, the lids of it set with small diamo
 restaurant door."
 "Did pretty well out West, didn't you?" asked the policeman.
 -------------------------------------------------------------------------------------------------------------------------------
+นางสาวศุภรัตน์ หรี่อินทร์ 633021304-2 Username:SUPARATREEIN
+
+![lab1_soft](https://user-images.githubusercontent.com/120583735/209801262-fd7a3c39-1463-477d-b87d-5563185163bf.jpg)
+-------------------------------------------------------------------------------------------------------------------------------
+บทที่ 3 Github
+"You bet! I hope Jimmy has done half as well. He was a kind of plodder, though, good fellow as
+he was. I've had to compete with some of the sharpest wits going to get my pile. A man gets in
+a groove in New York. It takes the West to put a razor-edge on him."
+The policeman twirled his club and took a step or two.
+"I'll be on my way. Hope your friend comes around all right. Going to call time on him sharp?"
+"I should say not!" said the other. "I'll give him half an hour at least. If Jimmy is alive on earth
+he'll be here by that time. So long, officer."
+"Good-night, sir," said the policeman, passing on along his beat, trying doors as he went.
+-------------------------------------------------------------------------------------------------------------------------------
+There was now a fine, cold drizzle falling, and the wind had risen from its uncertain puffs into a
+steady blow. The few foot passengers astir in that quarter hurried dismally and silently along
+with coat collars turned high and pocketed hands. And in the door of the hardware store the
+man who had come a thousand miles to fill an appointment, uncertain almost to absurdity, with
+the friend of his youth, smoked his cigar and waited.
+About twenty minutes he waited, and then a tall man in a long overcoat, with collar turned up
+to his ears, hurried across from the opposite side of the street. He went directly to the waiting
+man.
