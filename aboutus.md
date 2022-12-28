@@ -1,4 +1,5 @@
 นาย พีรวิทย์ พัฒนากุล 633021295-7 Username:peerawitptk
+
 ![1](https://user-images.githubusercontent.com/120616715/209792250-6aec6251-f59f-4a26-a070-6cb35d0d082f.jpg)
 บท Github
 The policeman on the beat moved up the avenue impressively. The impressiveness was
@@ -22,3 +23,30 @@ stands--'Big Joe' Brady's restaurant."
 The man in the doorway struck a match and lit his cigar. The light showed a pale, square-jawed
 face with keen eyes, and a little white scar near his right eyebrow. His scarfpin was a large
 diamond, oddly set
+
+นาย ธีทัต ลารังสิทธิ์ 633021280-0 Username:PXRno1
+
+![254345282_4803464089713111_5776864085764858409_n](https://user-images.githubusercontent.com/121214476/209794273-96defabf-44ed-466c-955d-25391d83474a.jpg)
+-------------------------------------------------------------------------------------------------------------------------------
+"Twenty years ago tonight," said the man, "I dined here at 'Big Joe' Brady's with Jimmy Wells,
+my best chum, and the finest chap in the world. He and I were raised here in New York, just like
+two brothers, together. I was eighteen and Jimmy was twenty. The next morning I was to start
+for the West to make my fortune. You couldn't have dragged Jimmy out of New York; he
+thought it was the only place on earth. Well, we agreed that night that we would meet here
+again exactly twenty years from that date and time, no matter what our conditions might be or
+from what distance we might have to come. We figured that in twenty years each of us ought
+to have our destiny worked out and our fortunes made, whatever they were going to be."
+"It sounds pretty interesting," said the policeman. "Rather a long time between meets, though,
+it seems to me. Haven't you heard from your friend since you left?"
+-------------------------------------------------------------------------------------------------------------------------------
+"Well, yes, for a time we corresponded," said the other. "But after a year or two we lost track of
+each other. You see, the West is a pretty big proposition, and I kept hustling around over it
+pretty lively. But I know Jimmy will meet me here if he's alive, for he always was the truest,
+
+stanchest old chap in the world. He'll never forget. I came a thousand miles to stand in this door
+to-night, and it's worth it if my old partner turns up."
+The waiting man pulled out a handsome watch, the lids of it set with small diamonds.
+"Three minutes to ten," he announced. "It was exactly ten o'clock when we parted here at the
+restaurant door."
+"Did pretty well out West, didn't you?" asked the policeman.
+-------------------------------------------------------------------------------------------------------------------------------
