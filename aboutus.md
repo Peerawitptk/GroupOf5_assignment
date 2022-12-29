@@ -75,3 +75,30 @@ the friend of his youth, smoked his cigar and waited.
 About twenty minutes he waited, and then a tall man in a long overcoat, with collar turned up
 to his ears, hurried across from the opposite side of the street. He went directly to the waiting
 man.
+-------------------------------------------------------------------------------------------------------------------------------
+นางสาววิภาดา พรมเมตตา 633021301-8 Username:wipadaP
+
+![111](https://user-images.githubusercontent.com/116009555/209943067-020d7871-0ed7-4981-a01a-8b166f91d5aa.jpg)
+-------------------------------------------------------------------------------------------------------------------------------
+บทที่ 4 Github
+
+"Is that you, Bob?" he asked, doubtfully.
+"Is that you, Jimmy Wells?" cried the man in the door.
+"Bless my heart!" exclaimed the new arrival, grasping both the other's hands with his own. "It's
+Bob, sure as fate. I was certain I'd find you here if you were still in existence. Well, well, well! --
+twenty years is a long time. The old gone, Bob; I wish it had lasted, so we could have had
+another dinner there. How has the West treated you, old man?"
+"Bully; it has given me everything I asked it for. You've changed lots, Jimmy. I never thought you
+were so tall by two or three inches."
+
+"Oh, I grew a bit after I was twenty."
+"Doing well in New York, Jimmy?"
+-------------------------------------------------------------------------------------------------------------------------------
+"Moderately. I have a position in one of the city departments. Come on, Bob; we'll go around to
+a place I know of, and have a good long talk about old times."
+The two men started up the street, arm in arm. The man from the West, his egotism enlarged
+by success, was beginning to outline the history of his career. The other, submerged in his
+overcoat, listened with interest.
+At the corner stood a drug store, brilliant with electric lights. When they came into this glare
+each of them turned simultaneously to gaze upon the other's face.
+-------------------------------------------------------------------------------------------------------------------------------
